@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @greenmint72.
+- 👀 I’m interested in web programing.
+- 🌱 I’m currently learning html,css, and javascript.
+- 💞️ I’m looking to collaborate on something.. actually..no.
+- 📫 Contact me with gmail at wj.greenmint0702@gmail.com
+- I am not really good at progaming.
+- I am korean. 
